@@ -3,7 +3,7 @@ SO JOIN OUR TELEGRAM CHANNEL
 HERE WE WILL PUBLISH NEW REPO GUYZ
 JOIN
 
- https:t.me/rdpbyshadowmtctechx
+ https://t.me/rdpbyshadowmtctechx
 https://t.me/rdpbyshadowmtctechx
 https://t.me/rdpbyshadowmtctechx
 # Video Guide
