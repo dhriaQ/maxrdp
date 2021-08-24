@@ -1,8 +1,11 @@
 ## IF THE REPO IS BANNED 
 SO JOIN OUR TELEGRAM CHANNEL
 HERE WE WILL PUBLISH NEW REPO GUYZ
-JOIN https:t.me/rdpbyshadowmtctechx
+JOIN
 
+ https:t.me/rdpbyshadowmtctechx
+https://t.me/rdpbyshadowmtctechx
+https://t.me/rdpbyshadowmtctechx
 # Video Guide
 
 https://t.me/rdpbyshadowmtctechx/23
